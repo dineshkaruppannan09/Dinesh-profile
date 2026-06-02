@@ -142,9 +142,9 @@
 
 ## 📫 Connect With Me
 
-📞 Contact:**[+91 6369688970]**
+📞 Contact:**+91 6369688970**
 
-📧 Email: **[dineshkaruppannan09@gmail.com](mailto:dineshkaruppannan09@gmail.com)**
+📧 Email:  **[dineshkaruppannan09@gmail.com](mailto:dineshkaruppannan09@gmail.com)**
 
 💻 GitHub: **https://github.com/dineshkaruppannan09**
 
