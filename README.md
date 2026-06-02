@@ -142,11 +142,13 @@
 
 ## 📫 Connect With Me
 
+📞 Contact:**[+91 6369688970]**
+
 📧 Email: **[dineshkaruppannan09@gmail.com](mailto:dineshkaruppannan09@gmail.com)**
 
 💻 GitHub: **https://github.com/dineshkaruppannan09**
 
-🔗 LinkedIn: **Add Your LinkedIn URL Here**
+🔗 LinkedIn: **https://www.linkedin.com/in/dinesh-karuppannan-?utm_source=share_via&utm_content=profile&utm_medium=member_android**
 
 ---
 
