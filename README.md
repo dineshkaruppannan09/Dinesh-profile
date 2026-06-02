@@ -148,7 +148,7 @@
 
 💻 GitHub: **https://github.com/dineshkaruppannan09**
 
-🔗 LinkedIn: **https://www.linkedin.com/in/dinesh-karuppannan-?utm_source=share_via&utm_content=profile&utm_medium=member_android**
+🔗 LinkedIn: **https://www.linkedin.com/in/dinesh-karuppannan-/**
 
 ---
 
